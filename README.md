@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NdzelenGlen
+- 👀 I’m interested in everything tech related and CRM
+- 🌱 I’m currently doing a Master's program in Computer Engineering
+- 📫 You can reach me at ndzelenglen123@gmail.com
