@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @NdzelenGlen
-- 👀 I’m interested in everything tech related and CRM
-- 🌱 I’m currently doing a Master's program in Computer Engineering
-- 📫 You can reach me at ndzelenglen123@gmail.com
+- 👀 I’m interested in everything tech related , ERP and CRM
+- 🌱 I’m  a Master's of Engineering Degree holder  in Computer Engineering
+- 📫 You can reach out to me at ndzelenglen123@gmail.com
